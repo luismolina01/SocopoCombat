@@ -1,0 +1,3 @@
+Bueno vale, este jueguito se llama SocopoCombat, y se trata de una tranca sabrosa entre dos criollazos bien plantados. Vos escogés tu personaje, puede ser el Llanero, el Gocho, el Guaro o el Caribeño, y te le vas de frente al otro compadre en un duelo por turnos. Podés atacar con to’ el empuje, o ponerte en defensa pa’ aguantar los guamazos. El otro carajo, que lo maneja la máquina, también juega sus cartas. El que quede sin vida, ¡bueno mijo, que se eche pa’ un lao!
+
+Es en consola, sin mucha pinta ni adorno, pero con harto sabor a tierra adentro. ¡Así que afilá el machete y dale pa’lante, que el llano no espera!
